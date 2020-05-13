@@ -5,6 +5,9 @@ Hello gamers! Well let's not stretch things much this time. Anyway... we just wa
 to say that we are ready to help. Yes! But how? Well we are providing you free accounts?
 And of what type? Gmail, Microsoft, Apple, Mojang, Epic Games, Unity, Tencent and any 
 other. Just gmail us to this account: "home.develoware@gmail.com". Please! We can make
-any sort of account for you. But you have to ask. Please, again!
+any sort of account for you. But you have to ask. You maybe afraid of your privacy, but
+after making the account we immidately email you the account username and password.
+
+Please, again!
 
 We love you 3000!
